@@ -11,6 +11,7 @@
 
 ### Жилищный кодекс Республики Беларусь, 28 августа 2012 г. № 428-З
 
+* вступил в силу с 2 марта 2013 г.
 * http://etalonline.by/?type=text&regnum=hk1200428
 * http://www.pravo.by/world_of_law/text.asp?RN=Hk1200428
   
